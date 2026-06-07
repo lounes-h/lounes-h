@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Lounes Hammache
 - 👀 I’m interested in Software Development Technologies
-- 📫 You can reach out tome via https://www.linkedin.com/in/lhammache/
+- 📫 You can reach out to me via https://www.linkedin.com/in/lhammache/
